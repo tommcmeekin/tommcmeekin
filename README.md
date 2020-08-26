@@ -1,5 +1,5 @@
 
-### Hi there 👋, Tom McMeekin
+### Hi there 👋, i'm Tom
 #### Analyst
 ![Analyst](https://arturssmirnovs.github.io/github-profile-readme-generator/images/banner.png)
 
